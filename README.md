@@ -70,10 +70,4 @@ sns
 
 
 
-
-
-
-
-
-
-YpPzR
+XS50CP
